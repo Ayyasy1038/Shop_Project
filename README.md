@@ -1,2 +1,2 @@
 # Shop_Project
-Gak Tau Cara Betulin Edit Nya.
+Udah Bagus Pokoknya
